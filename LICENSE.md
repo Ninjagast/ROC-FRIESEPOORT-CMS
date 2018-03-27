@@ -1,1 +1,1 @@
-please no copirino we copyrino
+please no copirino we copyrino ©
